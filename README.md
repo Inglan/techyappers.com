@@ -1,2 +1,0 @@
-# techyappers.com
-# techyappers.com
